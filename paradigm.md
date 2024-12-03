@@ -11,6 +11,7 @@ Varsity only, add this as well: realartistsofguantanamobay[at]googlegroups[dot]c
 I've decided to do version-control on this page; you can find previous versions at [my github](github.com/adhi-thirumala/paradigm/paradigm.md).
 
 I've been every speaker position, gone for every kind of argument, and debated at every level of the activity from the most lay to the most circuit. This used to be a lot longer. I thought that I needed to express all these random thoughts about the activity, but as I kept going on, I realized that I don't actually care that much. Now, imagine that I quoted that line about science fiction, trolls, and blank checks.
+
 I will intervene and end the round only in one of the three following circumstances.
 1. A debater asking to end the round.
 2. A debater not capable of communicating to me that they would like the debate to continue (e.g. someone unconscious, linguistic barrier, etc.)
