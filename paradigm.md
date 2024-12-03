@@ -15,6 +15,7 @@ I will intervene and end the round only in one of the three following circumstan
 1. A debater asking to end the round.
 2. A debater not capable of communicating to me that they would like the debate to continue (e.g. someone unconscious, linguistic barrier, etc.)
 3. Tabroom telling me to make a decision in a certain manner.
+
 A couple of thoughts from an older version of this document that I think are still necessary for me to express.
 1. Remember to have offense. Posturing and asserting that your opponent has gone for a "bad" argument does nothing to beat back the "badness" of it.
 2. Send me emails with proper subjects, **WORD** documents with proper names and headers, and time your prep. Preferably nothing in the body of an email either. My computer is already cluttered; don't make it worse.
