@@ -8,18 +8,12 @@ Email: adhi[dot]thirumala[at]gmail[dot]com
 
 Varsity only, add this as well: realartistsofguantanamobay[at]googlegroups[dot]com
 
-<<<<<<< HEAD
 I've decided to do version-control on this page; you can find previous versions at [my Github](github.com/adhi-thirumala/paradigm/paradigm.md)
 
 Long story short, dishonorable victory is preferable to honest defeat. Because some people have misinterpreted this line in the past, this does NOT mean to do academic dishonesty.
 
 I've been every speaker position, gone for every kind of argument, and debated at every level of the activity from the most lay to the most circuit. This used to be a lot longer. I thought that I needed to express all these random thoughts about the activity, but as I kept going on, I realized that I don't actually care that much. Debate made me happy in high school, and I enjoyed doing it. One of the few things that caused me anguish while I competed was judge intervention, either at the level where they would enforce argument preference, or at the level where they would make poor technical decisions and not take the simplest path to a victory. Part of what made the activity so fun was going for whatever positions I wanted, whether they were "honorable" or not. I will try my hardest to listen to whatever is in front of me because at the end of the day, the debate is about you, the debaters, not me.
-=======
-I've decided to do version-control on this page; you can find previous versions at [my github](github.com/adhi-thirumala/paradigm/paradigm.md).
 
-I've been every speaker position, gone for every kind of argument, and debated at every level of the activity from the most lay to the most circuit. This used to be a lot longer. I thought that I needed to express all these random thoughts about the activity, but as I kept going on, I realized that I don't actually care that much. Now, imagine that I quoted that line about science fiction, trolls, and blank checks.
-
->>>>>>> d2535f664486953dceadb0cc184932968d8f7d56
 I will intervene and end the round only in one of the three following circumstances.
 1. A debater asking to end the round.
 2. A debater not capable of communicating to me that they would like the debate to continue (e.g. someone unconscious, linguistic barrier, etc.)
