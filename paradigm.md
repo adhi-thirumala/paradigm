@@ -4,7 +4,7 @@ If you are going to UIUC next year and want to continue debate, contact me. We w
 
 Fox Chapel '24
 
-Other conflicts/coaching: Gunn KB, Edison BB, Jenks GH, Whitney Young SV/MB
+Other conflicts/coaching: Gunn KB, Edison BB, Jenks GH, Whitney Young SV/MB, Unionville HK
 
 Email: adhi[dot]thirumala[at]gmail[dot]com
 
@@ -30,7 +30,7 @@ A couple of thoughts from an older version of this document that I think are sti
 6. I don't judge kick by default. My justification for this it that it seems to be interventionist to make a decision without either teams asking me to do so, almost akin to filling in defense arbitrarily by kicking a counterplan. I think that judge kick is likely truthfully a good thing, and if the block/2NR says some amount of words, it is hard for the affirmative to articulate an alternative to judge kick without winning condo (and rarely does it invest precious 1AR time into doing so).
 7. Time prep yourself. In varsity, I generally trust debaters enough to do such a thing. Honestly, I forget to time it myself a lot of the time.
 8. Postround me. Disagreement is the highest form of respect (we're in DEBATE). I am a lowly first-year who is only slightly better than average at flowing. Debate is quite stressful, and talking it out after a round is certainly better than ruminating on a round for much time after. Taking that into account, I understand if you get slightly heated in a postround and won't hold it against you personally at all. You are all high-schoolers. I am an adult. It would be weird for me to hold grudges or get needlessly enraged at you.
-
+9. This has now come up in two debates. If someone says the argument "reject the argument not the team" on a theory flow, I will NOT presume that to be a counterinterpretation. I will just presume that to be an instruction of what to do if the other team wins that their interpretation is preferable. 
 Now, to end this page, imagine that I quoted that line about science fiction, trolls, and blank checks.
 
 
