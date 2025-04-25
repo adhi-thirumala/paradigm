@@ -30,8 +30,8 @@ A couple of thoughts from an older version of this document that I think are sti
 6. I don't judge kick by default. My justification for this it that it seems to be interventionist to make a decision without either teams asking me to do so, almost akin to filling in defense arbitrarily by kicking a counterplan. I think that judge kick is likely truthfully a good thing, and if the block/2NR says some amount of words, it is hard for the affirmative to articulate an alternative to judge kick without winning condo (and rarely does it invest precious 1AR time into doing so).
 7. Time prep yourself. In varsity, I generally trust debaters enough to do such a thing. Honestly, I forget to time it myself a lot of the time.
 8. Postround me. Disagreement is the highest form of respect (we're in DEBATE). I am a lowly first-year who is only slightly better than average at flowing. Debate is quite stressful, and talking it out after a round is certainly better than ruminating on a round for much time after. Taking that into account, I understand if you get slightly heated in a postround and won't hold it against you personally at all. You are all high-schoolers. I am an adult. It would be weird for me to hold grudges or get needlessly enraged at you.
-9. It's probably suspect to say "please don't read death good" against us and apply that to wipeout debates such as AGI, animals etc. The argument is not actually Also, it seems like you forfeit the right to complain about such arguments if you read an extinction impact first. Reading (what is probably an incorrect) metaethic and then complaining about its perverse implications is a bit nonsensical.
-11. 
+9. It's probably suspect to say "please don't read death good" against us and apply that to wipeout debates such as AGI, animals etc. Also, it seems like you forfeit the right to complain about such arguments if you read an extinction impact first. Reading (what is probably an incorrect) metaethic and then complaining about its perverse implications is a bit nonsensical.
+1. 
 Now, to end this page, imagine that I quoted that line about science fiction, trolls, and blank checks.
 
 
