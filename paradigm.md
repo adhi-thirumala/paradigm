@@ -31,6 +31,10 @@ A couple of thoughts from an older version of this document that I think are sti
 7. Time prep yourself. In varsity, I generally trust debaters enough to do such a thing. Honestly, I forget to time it myself a lot of the time.
 8. Postround me. Disagreement is the highest form of respect (we're in DEBATE). I am a lowly first-year who is only slightly better than average at flowing. Debate is quite stressful, and talking it out after a round is certainly better than ruminating on a round for much time after. Taking that into account, I understand if you get slightly heated in a postround and won't hold it against you personally at all. You are all high-schoolers. I am an adult. It would be weird for me to hold grudges or get needlessly enraged at you.
 9. This has now come up in two debates. If someone says the argument "reject the argument not the team" on a theory flow, I will NOT presume that to be a counterinterpretation. I will just presume that to be an instruction of what to do if the other team wins that their interpretation is preferable. 
+10. Don't get why people get mad at calling framework standards "DAs".
+a. They obviously meet the normal definition of the DA, either the interpretation OR in-round performance generate uniqueness, the link is to what the other team did, and the impact is *insert k impact* or fairness or something.
+b. Surprisingly, disadvantage means "thing that negatively affects the desirability of another thing" - obviously standards on framework negatively affect the desirability of the other interpretation.
+11. It's probably suspect to say "please don't read death good" against us and apply that to wipeout debates such as AGI, animals etc. Also, it seems like you forfeit the right to complain about such arguments if you read an extinction impact first. Reading (what is probably an incorrect) metaethic and then complaining about its perverse implications is a bit nonsensical.
 Now, to end this page, imagine that I quoted that line about science fiction, trolls, and blank checks.
 
 
