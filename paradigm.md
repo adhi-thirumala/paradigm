@@ -1,3 +1,5 @@
+Note: Palmer, are you stupid?? Limiting me to 1500 words is absurd.
+
 University of Illinois Urbana-Champaign '28 ('27?)
 
 Fox Chapel '24
@@ -9,6 +11,13 @@ Email: debate[at]adhi-thirumala[dot]com
 Varsity only, add this as well: realartistsofguantanamobay[at]googlegroups[dot]com
 
 I've decided to do version-control on this page; you can find previous versions at [my Github](github.com/adhi-thirumala/paradigm/paradigm.md)
+
+
+Big header for Pittsburgh locals:
+Most of this paradigm is irrelevant for you. I did policy in high school, and most of my thoughts on debate were formed through that. The only things I carry to judging new formats is one fold: Decisions are only made based on words on my flow. I might use external beliefs in an RFD, but those can ALWAYS be overwritten by words said in a debate. This means that technical debating always overrides the truth. If you have an issue with that, try mounting a technical defense of the truth. 
+To be honest, I don't actually know how any of the other formats work past "there is a resolution, the aff must prove it true, else the neg wins" (unless either side wins that need not be the case). Please time yourselves, don't steal prep, don't falsify evidence or do any of the other nonsense that i associate with pittsburgh locals in my head.
+
+Real paradigm below.
 
 Long story short, dishonorable victory is preferable to honest defeat. 
 
