@@ -19,6 +19,7 @@ Most of this paradigm is irrelevant for you. I did policy in high school, and mo
 
 Just because my paradigm looks super tech doesn't mean I don't care for/evaluate normal arguments. I don't have any thoughts on them because they're straightforward. Thus, they don't need to feature here. I'm still obviously capable of evaluating normal debates normally; my paradigm is for how I think about abnormal debates (since I think about those more often).
 To be honest, I don't actually know how any of the other formats work past "there is a resolution, the aff must prove it true, else the neg wins" (unless either side wins that need not be the case). Please time yourselves, don't steal prep, don't falsify evidence, or do any of the other nonsense that i associate with pittsburgh locals in my head.
+important pf note for NA: none of the nonsense where we take 30 extra minutes in the round to send cards. either send all cards you will read in a speech before the speech or its prep on the asker and sender (yes, both).
 
 Real paradigm below.
 
